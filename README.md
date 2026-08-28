@@ -1,1 +1,0 @@
-# GhostmapTouch-Privacy-Policy-Terms-of-Service
